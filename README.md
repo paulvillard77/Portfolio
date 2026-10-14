@@ -34,5 +34,5 @@ Un projet en tête ou une opportunité de collaboration ? N'hésitez pas à me c
 
 - **Email** : [paul.villard77@gmail.com](mailto:paul.villard77@gmail.com)
 - **Téléphone** : +33 7 80 47 78 60
-- **LinkedIn** : [weil.soren](https://linkedin.com/in/weil.soren)
+- **LinkedIn** : [Paul VILLARD](https://www.linkedin.com/in/paul-villard-618584443)
 - **Instagram** : [@paul.v.design](https://instagram.com/paul.v.design)
